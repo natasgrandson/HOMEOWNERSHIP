@@ -8,7 +8,8 @@ First owners: get a Voxel sculpture as a gift.
 
 Goal: Help me buy a house for my mom.
 
-Comments: 
+Comments:
+
 *Download is free
 
 *The voxel is a gift, it is an affective memory, but it can be sold you are free to do what you want.
