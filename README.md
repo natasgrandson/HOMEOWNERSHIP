@@ -1,6 +1,6 @@
 # HOMEOWNERSHIP
 
-35 Arts (in various ways) 5 at a time.
+35 Arts (in various ways)
 
 First owners: get a Voxel sculpture as a gift.
 
