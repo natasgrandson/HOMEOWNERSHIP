@@ -1,5 +1,11 @@
 # HOMEOWNERSHIP
 
+https://opensea.io/collection/homeownership
+
+https://sites.google.com/view/natasgrandson
+
+https://twitter.com/natasgrandson
+
 35 Arts (in various ways)
 
 First owners: get a Voxel sculpture as a gift.
@@ -15,5 +21,3 @@ Comments:
 *The voxel is a gift, it is an affective memory, but it can be sold you are free to do what you want.
 
 Thanks - Nata's Grandson/Binho
-
-https://opensea.io/collection/homeownership
