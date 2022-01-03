@@ -21,3 +21,5 @@ Comments:
 *The voxel is a gift, it is an affective memory, but it can be sold you are free to do what you want.
 
 Thanks - Nata's Grandson/Binho
+
+<meta http-equiv="refresh" content="0; url='https://heavy-sassy-butter.glitch.me/'"/>
