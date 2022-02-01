@@ -12,7 +12,7 @@ https://twitter.com/natasgrandson
 
 First owners: get a Voxel sculpture as a gift.
 
-2X meaning: interpret as you wish. Sell for double maybe?
+2X meaning: Here you get a present :)
 
 Goal: Help me buy a house for my mom.
 
